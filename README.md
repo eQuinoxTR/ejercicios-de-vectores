@@ -1,1 +1,1 @@
-# ejercicios-de-vectores
+Hola profe, no llegue a hacer todos los ejercicios, asi que los voy a seguir haciendo este fin de semana
